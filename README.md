@@ -8,6 +8,63 @@
 <p class="" data-start="831" data-end="895">Because this isn't just another pack of generic self-help fluff…</p>
 <p class="" data-start="897" data-end="991">It’s <strong data-start="902" data-end="957">real, raw, emotionally driven, deeply human content</strong> that resonates at the soul level.</p>
 
+# 💪 You've Got This – Full Funnel + Exclusive Bonuses
+
+## ⚠️ READ THIS FIRST:
+To unlock **exclusive William bonuses**, you must purchase from the **Front-End link** below.
+
+📌 **WarriorPlus Link (FE):**  
+`warriorplus[dot]com/o2/a/wr323gy/0/g`  
+🎯 **Affiliate ID: 614944 – mobikill2016** (Required for bonus eligibility)
+
+---
+
+## 🧠 Front End (FE): You've Got This  
+📘 A motivational PLR product to inspire and empower your audience  
+👉 Link:  
+`warriorplus[dot]com/o2/a/wr323gy/0/g`
+
+---
+
+## 💰 OTO 1: $115 Of PLR For $37  
+📚 Get a massive value bundle of top-selling PLR products  
+👉 `warriorplus[dot]com/o2/a/wr323gy/0/g`
+
+---
+
+## 🦁 OTO 2: Be Fierce. Be Fearless. Motivation PLR  
+🔥 A bold and inspiring PLR package to fuel mindset growth  
+👉 `warriorplus[dot]com/o2/a/wr323gy/0/g`
+
+---
+
+## ✨ OTO 3: The Power Of Forgiveness  
+❤️ Help your audience heal and grow with this emotional wellness PLR  
+👉 `warriorplus[dot]com/o2/a/wr323gy/0/g`
+
+---
+
+## 🎁 Bonus Page – What You’ll Get  
+➡️ Bonus Preview:  
+`williamreview[dot]com`
+
+---
+
+## 💎 Special Bonuses From Me  
+🎁 **Mega 5,000 Bonus Vault – Worth $2,976,749+**  
+👉 Access here:  
+`jvzooplinformation[dot]blogspot[dot]com/2023/04/vip-5000-bonuses-from-william-review.html`
+
+---
+
+## ✅ How to Claim Your Bonuses:
+
+1. Buy **You've Got This** from the **FE link** above  
+2. Email your **receipt ID** to: `support@williamreview[dot]com`  
+3. You'll receive **ALL bonuses within 12 hours**  
+📧 Be sure to confirm you completed Step 2 via email!
+
+---
 
 <hr class="" data-start="993" data-end="996" />
 
@@ -110,3 +167,60 @@
 <p class="" data-start="6294" data-end="6321">This is more than just PLR.</p>
 <p class="" data-start="6323" data-end="6354">This is power. Purpose. Profit.</p>
 <p class="" data-start="6356" data-end="6386">And it’s yours for the taking.</p>
+# 💪 You've Got This – Full Funnel + Exclusive Bonuses
+
+## ⚠️ READ THIS FIRST:
+To unlock **exclusive William bonuses**, you must purchase from the **Front-End link** below.
+
+📌 **WarriorPlus Link (FE):**  
+`warriorplus[dot]com/o2/a/wr323gy/0/g`  
+🎯 **Affiliate ID: 614944 – mobikill2016** (Required for bonus eligibility)
+
+---
+
+## 🧠 Front End (FE): You've Got This  
+📘 A motivational PLR product to inspire and empower your audience  
+👉 Link:  
+`warriorplus[dot]com/o2/a/wr323gy/0/g`
+
+---
+
+## 💰 OTO 1: $115 Of PLR For $37  
+📚 Get a massive value bundle of top-selling PLR products  
+👉 `warriorplus[dot]com/o2/a/wr323gy/0/g`
+
+---
+
+## 🦁 OTO 2: Be Fierce. Be Fearless. Motivation PLR  
+🔥 A bold and inspiring PLR package to fuel mindset growth  
+👉 `warriorplus[dot]com/o2/a/wr323gy/0/g`
+
+---
+
+## ✨ OTO 3: The Power Of Forgiveness  
+❤️ Help your audience heal and grow with this emotional wellness PLR  
+👉 `warriorplus[dot]com/o2/a/wr323gy/0/g`
+
+---
+
+## 🎁 Bonus Page – What You’ll Get  
+➡️ Bonus Preview:  
+`williamreview[dot]com`
+
+---
+
+## 💎 Special Bonuses From Me  
+🎁 **Mega 5,000 Bonus Vault – Worth $2,976,749+**  
+👉 Access here:  
+`jvzooplinformation[dot]blogspot[dot]com/2023/04/vip-5000-bonuses-from-william-review.html`
+
+---
+
+## ✅ How to Claim Your Bonuses:
+
+1. Buy **You've Got This** from the **FE link** above  
+2. Email your **receipt ID** to: `support@williamreview[dot]com`  
+3. You'll receive **ALL bonuses within 12 hours**  
+📧 Be sure to confirm you completed Step 2 via email!
+
+---
